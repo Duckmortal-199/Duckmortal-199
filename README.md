@@ -1,6 +1,6 @@
 - Hi, I’m @Duckmortal-199
 - I’m interested in Code Relationship 
-- I’m currently learning Basic Programing
+- I’m currently learning Basic Programming
 - I’m looking to collaborate on Optimization of Process Design
 - How to reach me: tyosuke.p@gmail.com
 - Pronouns: Time Limitation of Work
